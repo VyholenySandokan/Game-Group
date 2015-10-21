@@ -1,1 +1,1 @@
-# homo-GROUP
+# nič tu neni
